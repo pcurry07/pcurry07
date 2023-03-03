@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @GoodBridger2
+- 👋 Hi, I’m Paul!
 - 👀 I’m interested in coding, reading, and math.
 - 🌱 I’m currently learning in high school.
 - 💞️ I’m looking to collaborate on nothing right now.
